@@ -11,7 +11,7 @@
 
 •--------------•
 
-# why did you make this?
+# why did i make this?
 
 • i made this to share my admin commands with you guys so you can abuse or either stop making people abusing
 
