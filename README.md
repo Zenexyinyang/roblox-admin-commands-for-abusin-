@@ -2,7 +2,7 @@
 
 ### ⚠️PLEASE USE THESE COMMANDS AS A RISK, YOU MIGHT GET KICKED VOTEKICKED OR BANNED FROM THE GAME⚠️
 
-
+•--------------•
 
 # what to do?
 
