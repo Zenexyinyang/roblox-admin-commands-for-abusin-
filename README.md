@@ -1,5 +1,7 @@
 # roblox admin commands
 
+# PLEASE USE THESE COMMANDS AS A RISK, YOU MIGHT GET KICKED VOTEKICKED OR BANNED FROM THE GAME
+
 # what to do?
 
 
@@ -10,3 +12,6 @@
 # why did you make this?
 
 • i made this to share my admin commands with you guys so you can abuse or either stop making people abusing
+
+•--------------•
+
