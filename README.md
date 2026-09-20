@@ -1,2 +1,2 @@
-# roblox-admin-commands-for-abusin-
-Just admin commands
+# roblox admin commands
+Just admin command
